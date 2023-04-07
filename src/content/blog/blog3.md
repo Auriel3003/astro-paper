@@ -1,6 +1,6 @@
 ---
 author: Samael3003
-pubDatetime: 2023-10-30T15:57:52.737Z
+pubDatetime: 2022-10-30T15:57:52.737Z
 title: Advice for Newbies ...
 postSlug: advice-for-newbies
 featured: true
