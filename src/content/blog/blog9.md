@@ -51,7 +51,9 @@ To tie in the reference to Naruto, it's important to remember the lesson of pers
 
 In conclusion, relationships are complex and require trust, honesty, and communication to thrive. It's important to set boundaries and values for oneself and to never compromise on them. While it can be difficult to navigate through the ups and downs of relationships, it's important to remember that there is always hope for a better future. As Naruto once said, 
         
-> ### When people get hurt, they learn to hate...when people hurt others, they become hated and racked with guilt. But knowing that pain allows people to be kind. Pain allows people to grow...and how you grow is up to you.
+> ## Words of "Pain"
+> 
+> #### "When people get hurt, they learn to hate...when people hurt others, they become hated and racked with guilt. But knowing that pain allows people to be kind. Pain allows people to grow...and how you grow is up to you."
 
 ## a word of Frindship
 
