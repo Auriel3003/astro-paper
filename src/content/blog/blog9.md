@@ -13,6 +13,10 @@ description: Trust and Deception The Painful Realities of Love
 
 # Title: Trust and Deception: The Painful Realities of Love
 
+> ## - Kakashi Hatake  (the Copy-Ninja)
+> 
+> #### "To know what is right and choose to ignore it is the act of a coward." 
+
 When it comes to love and relationships, trust is a vital component that underpins everything. Without trust, even the strongest bond can crumble and fall apart. Unfortunately, trust is not always a given, and sometimes, it can be broken in the most painful ways.
 
 ## The Story of a Young Man .....
@@ -30,6 +34,10 @@ It was a painful realization for the young man. He had been deceived and betraye
 In moments like these, it is easy to lose faith in love and relationships. It is easy to close yourself off from the world and let the pain consume you. However, it is important to remember that trust and deception are not unique to romantic relationships. They are part of the human experience, and they can happen in any type of relationship, whether it be with family, friends, or colleagues.
 
 The young man's situation also calls to mind a theme from Naruto, a popular Japanese anime and manga series. The show's protagonist, Naruto Uzumaki, is someone who has experienced a great deal of pain and loss in his life, yet he never gives up. He always finds the strength to keep going, even when it seems like the world is against him.
+
+> ## - Naruto Uzumaki (knuckle-head of the Leaf)
+> 
+> #### "I'm never going to run away. I never go back on my word. That's my nindo, my ninja way." 
 
 ## "Dattebayo !!!"
 
@@ -51,7 +59,7 @@ To tie in the reference to Naruto, it's important to remember the lesson of pers
 
 In conclusion, relationships are complex and require trust, honesty, and communication to thrive. It's important to set boundaries and values for oneself and to never compromise on them. While it can be difficult to navigate through the ups and downs of relationships, it's important to remember that there is always hope for a better future. As Naruto once said, 
         
-> ## Words of "Pain"
+> ## Words of "Pain"  (the Akatsuki)
 > 
 > #### "When people get hurt, they learn to hate...when people hurt others, they become hated and racked with guilt. But knowing that pain allows people to be kind. Pain allows people to grow...and how you grow is up to you."
 
