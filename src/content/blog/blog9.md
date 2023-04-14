@@ -47,9 +47,11 @@ In the end, the writer wonders if they should just let nobody near them and live
 
 To tie in the reference to Naruto, it's important to remember the lesson of perseverance and never giving up. Naruto faced many challenges and obstacles in his life, but he never gave up on his dreams and continued to push forward despite the odds. Similarly, the writer should never give up on finding happiness and love in their life, even if they have faced challenges and setbacks.
 
+## Conclusion ..
+
 In conclusion, relationships are complex and require trust, honesty, and communication to thrive. It's important to set boundaries and values for oneself and to never compromise on them. While it can be difficult to navigate through the ups and downs of relationships, it's important to remember that there is always hope for a better future. As Naruto once said, 
         
-    "When people get hurt, they learn to hate...when people hurt others, they become hated and racked with guilt. But knowing that pain allows people to be kind. Pain allows people to grow...and how you grow is up to you."
+> ### When people get hurt, they learn to hate...when people hurt others, they become hated and racked with guilt. But knowing that pain allows people to be kind. Pain allows people to grow...and how you grow is up to you.
 
 ## a word of Frindship
 
