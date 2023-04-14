@@ -23,9 +23,9 @@ When it comes to love and relationships, trust is a vital component that underpi
 
 Such was the case for one young man who had been in a relationship with his girlfriend for three months. He had gone out of his way to make her happy, even sacrificing his own well-being for her sake. But one fateful night, everything changed.
 
-He and his girlfriend were in Mumbai, and when they reached Vasai, she received a call from her ex-boyfriend offering to pick her up. The young man thought it was okay, given that it was late at night and dangerous for a girl to travel alone. However, his girlfriend refused his help.
+He and his girlfriend were in BOMBAY, and when they reached **_V1_**, she received a call from her ex-boyfriend offering to pick her up. The young man thought it was okay, given that it was late at night and dangerous for a girl to travel alone. However, his girlfriend refused his help.
 
-When they arrived at Virar, the young man thought it was his duty to catch the train for her to Palghar. She claimed she was talking to her father, who was in the Railway Police. However, he noticed her ex-boyfriend's name on the call display, and after booking her a ticket, he realized that she had been talking to her ex-boyfriend for almost more than five minutes. To make matters worse, she then took him to meet her ex-boyfriend.
+When they arrived at **_V2_**, the young man thought it was his duty to catch the train for her to **_P1_**. She claimed she was talking to her father, who was in the Railway Police. However, he noticed her ex-boyfriend's name on the call display, and after booking her a ticket, he realized that she had been talking to her ex-boyfriend for almost more than five minutes. To make matters worse, she then took him to meet her ex-boyfriend.
 
 The young man was devastated. He had trusted his girlfriend, and she had deceived him. She had planned to deceive him by acting like a traditional Indian wife, talking to her ex-boyfriend in a tone of respect similar to how she would talk to her father. Behind his back, she had called her ex-boyfriend to escort her, even though she had told him she was going alone. To make matters worse, she had once told him that her ex-boyfriend would call her whenever he needed personal sexual favors.
 
