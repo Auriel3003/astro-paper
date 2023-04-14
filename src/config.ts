@@ -7,7 +7,7 @@ export const SITE: Site = {
   title: "Samael3003",
   ogImage: "astropaper-og.jpg",
   lightAndDarkMode: true,
-  postPerPage: 3,
+  postPerPage: 10,
 };
 
 export const LOGO_IMAGE = {
