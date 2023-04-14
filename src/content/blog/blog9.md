@@ -58,3 +58,7 @@ In conclusion, relationships are complex and require trust, honesty, and communi
 ## a word of Frindship
 
 Despite all the challenges and difficulties that the young man faced in his life, he knew that there was one person he could always count on. This person was his best friend, whom he had known since childhood. The two of them had been through thick and thin together, and there was no one in the world who understood the young man's struggles better than his friend. They would talk for hours about their dreams and aspirations, and the young man always felt better after confiding in his friend. He knew that no matter what happened in life, he could always turn to his friend for support and encouragement. And that, he thought, was one of the greatest blessings in the world.
+
+> ## - Naruto Uzumaki (Lord Seventh)
+> 
+> #### "People who continue to put their lives on the line to defend their faith become heroes and continue to exist on in legend." 
