@@ -29,6 +29,8 @@ When they arrived at Virar, the young man thought it was his duty to catch the t
 
 The young man was devastated. He had trusted his girlfriend, and she had deceived him. She had planned to deceive him by acting like a traditional Indian wife, talking to her ex-boyfriend in a tone of respect similar to how she would talk to her father. Behind his back, she had called her ex-boyfriend to escort her, even though she had told him she was going alone. To make matters worse, she had once told him that her ex-boyfriend would call her whenever he needed personal sexual favors.
 
+## the Deception comes Hard ...
+
 It was a painful realization for the young man. He had been deceived and betrayed, and he was struggling to come to terms with it. He felt like he had been born in the wrong time, and that there was no one he could trust. He even questioned whether he deserved anyone's love or affection, believing that he had nothing special to offer.
 
 In moments like these, it is easy to lose faith in love and relationships. It is easy to close yourself off from the world and let the pain consume you. However, it is important to remember that trust and deception are not unique to romantic relationships. They are part of the human experience, and they can happen in any type of relationship, whether it be with family, friends, or colleagues.
