@@ -10,7 +10,7 @@ tags:
 description: Part 2 The Echos of the Past
 ---
 
-Part 2: The Echoes of Doubt
+# Part 2: The Echoes of Doubt
 
 C, left broken and confused by the events that unfolded after S's departure, had endured years of torment and self-doubt. The rumors that tainted S's name had cast a dark shadow over their once-cherished love. Night after night, she wrestled with the haunting questions that plagued her thoughts.
 
