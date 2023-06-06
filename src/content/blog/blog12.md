@@ -10,6 +10,8 @@ tags:
 description: Part 3 The Love Rekindeled
 ---
 
+# Part 3 : The Love Rekindeled
+
 As the phone call ends, a decision is made. C, torn between love and doubt, chooses to meet S face-to-face at the **_"T's Hotel,"_** a place where their love was first ignited. It holds sentimental value, reminding them of the joy they once shared. Nervously, they step into the familiar surroundings, filled with both anticipation and trepidation.
 
 S, his heart heavy with remorse, takes a deep breath and looks into C's eyes. _"I can't change the past, C, but I want you to know that every day without you was torture. The rumors, the judgment—it all broke me. I didn't have the strength to face you, to see the pain in your eyes because of what they said about me and your sister."_
