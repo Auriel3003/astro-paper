@@ -10,6 +10,8 @@ tags:
 description: Part 1 The Dream's Betrayal
 ---
 
+Part 1 : The Dream's Betrayal
+
 S sat alone in his dimly lit room, the pages of his journal staring back at him, blank and empty. He yearned to weave a story, a tale of love and longing that had haunted his dreams. With determination in his eyes, he grasped his pen and began to write, using the power of words to bring his dream to life. The dream revolved around S and his love for C. They were inseparable, deeply connected by an unbreakable bond. Their love was pure and true, something that others envied. But there was one person who despised their happiness, someone who wanted to tear them apart.
 
 _"In the realm of dreams, love knows no bounds,"_ he mused, his mind filled with the image of a protagonist named S, a soul deeply entwined with a woman named C. Their love burned fiercely, casting a glow that others coveted. Yet, amidst the warmth, a shadow emerged, seeking to extinguish their flame. This mysterious figure, the antagonist of the dream, was determined to ruin S and C's love. They would try everything in their power to sabotage their relationship, but no matter what they did, S and C's love always prevailed. It was as if their love had a force of its own, protecting them from harm.
